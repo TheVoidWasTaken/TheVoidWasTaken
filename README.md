@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheVoidWasTaken
-- 👀 I’m interested in roblox revivals.
+- 👀 I’m interested in nothing lmao.
 - 🌱 I’m currently learning.
-- 📫 You can reach me in Discord or in YouTube, the info is private currently. XD
+- 📫 You can reach me in Discord or in YouTube. The information is currently private.
 
 <!---
 TheVoidWasTaken/TheVoidWasTaken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
